@@ -1,1 +1,1 @@
-For any help contact: telegram.dog/swssy
+Contact for help: telegram.dog/swssy
